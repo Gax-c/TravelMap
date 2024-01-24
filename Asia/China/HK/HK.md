@@ -6,7 +6,7 @@
 
 It was my inaugural visit to Hong Kong, a prominent economic hub in China celebrated for its financial prowess. Despite our brief stay of just 3 days, it provided ample opportunity to explore the city. In Hong Kong, the emphasis lies not so much on seeking picturesque landscapes, but rather on immersing oneself in its urban attractions and cityscape.
 
-HK is a small city compared with other cities in Mainland China, and it will take at most no less than an hour to travel from one scenic spot to another. There are something interesting or some differences compared with Mainland China. 
+HK is a small city compared with other cities in Mainland China, and it will take at most no more than an hour to travel from one scenic spot to another. There are something interesting or some differences compared with Mainland China. 
 
 1. The consumption level is higher than Mainland China, double the price of Hangzhou. 
 2. There are a lot of skyscrapers, and the construction is quite similar to Chongqing, which means even if you were at 12th floor, you may regard it as the ground floor. 
