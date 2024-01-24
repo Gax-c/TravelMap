@@ -4,7 +4,7 @@
 
 ## Preface
 
-It was my first time to travel to Hong Kong. HK is a economic city in China, and is famous for its economic power. Though we have only stayed here for 3 days, it's enough for us to go through the city. For HK, it may not be that important to looking for some beautiful scenery, but visiting some city sights. 
+It was my first time to travel to Hong Kong. HK is a economic city in China, and is famous for its economic power. Though we have only stayed here for 3 days, it's enough for us to go through the city. For HK, it may not be that important to look for some beautiful scenery, but to visit some city sights. 
 
 HK is a small city compared with other cities in China Mainland, and it will take at most no less than an hour to travel from one scenic spot to another. There are something interesting or some differences compared with China Mainland. 
 
