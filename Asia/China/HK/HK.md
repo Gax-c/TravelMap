@@ -4,17 +4,17 @@
 
 ## Preface
 
-It was my first time to travel to Hong Kong. HK is a economic city in China, and is famous for its economic power. Though we have only stayed here for 3 days, it's enough for us to go through the city. For HK, it may not be that important to look for some beautiful scenery, but to visit some city sights. 
+It was my inaugural visit to Hong Kong, a prominent economic hub in China celebrated for its financial prowess. Despite our brief stay of just 3 days, it provided ample opportunity to explore the city. In Hong Kong, the emphasis lies not so much on seeking picturesque landscapes, but rather on immersing oneself in its urban attractions and cityscape.
 
-HK is a small city compared with other cities in China Mainland, and it will take at most no less than an hour to travel from one scenic spot to another. There are something interesting or some differences compared with China Mainland. 
+HK is a small city compared with other cities in Mainland China, and it will take at most no less than an hour to travel from one scenic spot to another. There are something interesting or some differences compared with Mainland China. 
 
-1. The consumption level is higher than China Mainland, about double the price of Hangzhou. 
+1. The consumption level is higher than Mainland China, double the price of Hangzhou. 
 2. There are a lot of skyscrapers, and the construction is quite similar to Chongqing, which means even if you were at 12th floor, you may regard it as the ground floor. 
 3. Cause HK was once ruled by Britain, many British things still remains. Like driving on the left, British-style meals, counting from the ground floor. 
 4. Fast-paced life: people there always walk fast, and the escalators also go fast. 
 5. And what struck me a lot was the overall quality of people there. When people was taking the escalator, they always went on the right side, and vacated the left side for emergency use. Also, almost everyone in HK knows English and can speak it quite well. Even the clients or the students can handle it really well. 
 
-**Advice: ** It's a good idea to book your hotel far from the city center, so that your room will be bigger and cheaper, but please pay special attention that your hotel location should be close to the underground station. And here are some recommendable scenic spots: Victoria Peak, Victoria Harbour, The University of Hong Kong. 
+**Advice: ** It's a good idea to book your hotel far from the city center, so that your room will be bigger and cheaper, but please pay special attention that your hotel location should be close to the underground station. Here are some noteworthy scenic spots worth considering during your stay: Victoria Peak, Victoria Harbour, and The University of Hong Kong.
 
 ## Schedule 
 
@@ -22,7 +22,7 @@ HK is a small city compared with other cities in China Mainland, and it will tak
 
 We took the flight in the early morning, from Hangzhou to Shenzhen. Then, we took the high speed train to HK. It's cheaper to buy the separate tickets than directly flying to HK.  
 
-At first, we planned to casually walk around the city in the afternoon, but we finally decided to visit **HKU(香港大学)**. Beacause we live in **Tsim Sha Tsui(尖沙咀)**, so we chose to walk to HKU, and to tour the city by the way. 
+Initially, our plan was to leisurely explore the city in the afternoon. However, we ultimately decided to visit **HKU(香港大学)**. Given our accommodation in **Tsim Sha Tsui(尖沙咀)**, we chose to take a scenic stroll to HKU, allowing us to simultaneously experience the city's charm along the way.
 
 <img src="pics\tsim_sha_tsui.jpg" alt="Tsim Sha Tsui underground" width="60%" height="60%">
 
@@ -30,7 +30,7 @@ Luckily, we took the cruise to travel to the opposite island, and we can enjoy t
 
 <img src="pics\cruise.jpg" alt="Picture took from the cruise" width="60%" height="60%">
 
-HKU is built on the mountain. When wondering around, we got lost, because we failed to get to the destination due to the vertical structure of the campus design. Well, personally, I love this kind of structure, for every floor, you will find something new and exciting. Compared with **CUHK(香港中文大学)**, which is quite normal occupying a large area, I prefer the HKU. 
+HKU is built on the mountain. While wandering around, we unexpectedly found ourselves lost, cause we failed to get to the destination due to the vertical structure of the campus design. Well, personally, I love this kind of structure, for every floor, you will find something new and exciting. Compared with **CUHK(香港中文大学)**, which is quite normal occupying a large area, I prefer the HKU. 
 
 <table>     
     <tr>       
@@ -43,17 +43,17 @@ HKU is built on the mountain. When wondering around, we got lost, because we fai
     </tr>   
 </table>
 
-After that, We went back to **Yau Tsim Mong District(油尖旺区)**. It can be called the city center of HK, and if you wanna go shopping, it's the best place for you. Also, if you want to feel the economic charm of HK, you can't miss it. 
+Subsequently, we returned to **Yau Tsim Mong District(油尖旺区)**, often referred to as the city center of Hong Kong. Renowned for its bustling atmosphere, this district is a prime destination for shopping enthusiasts. If you're eager to immerse yourself in the economic allure of Hong Kong, this area is a must-visit.
 
 ### Day2
 
-Breakfast time! We had the traditional HK morning tea at **Tao Heung(稻香)**. The food is delicious and you can really feel about the morning tea atmosphere there. But the service was a little bit bad(maybe only bad to tourists from China Mainland). 
+Breakfast time! We had the traditional HK morning tea at **Tao Heung(稻香)**. The food is delicious and you can really feel about the morning tea atmosphere there. But the service was a little bit bad(maybe only bad to tourists from Mainland China). 
 
 <img src="pics\daoxiang.jpg" alt="Tao Heung" width="60%" height="60%">
 
 After meal, we went to **West Kowloon(西九龙)**, which is the culture center of HK. We visited **M+ museum** and **Hong Kong Palace Museum(香港故宫文化博物馆)**. M+ museum is mainly for modern arts, and Hong Kong Palace Museum is mainly for past history exhibition(exhibits Ming, Qing dynasty). 
 
-To be honest, I am more fond of the M+ museum, cause I have seen hundreds of exhibitions related to China's history, and you can see it everywhere in China Mainland(even every city has one). So it's much more interesting for me to going through the M+ museum. 
+To be honest, I am more fond of the M+ museum, cause I have seen hundreds of exhibitions related to China's history, and you can see it everywhere in Mainland China(even every city has one). So it's much more interesting for me to going through the M+ museum. 
 
 <table>     
     <tr>       
@@ -92,9 +92,9 @@ The most beautiful sight in CUHK is the **Pavilion of Harmony(合一亭)**. If y
     </tr>      
 </table>
 
-Again we went back to Yau Tsim Mong District. It's hilarious that we almost spent half of our time going shopping. But I was at that time that I bought my Fujifilm Instax Mini Evo(quite hard to buy it in China Mainland). 
+Returning once more to Yau Tsim Mong District, it turned out to be quite amusing that we devoted a significant portion of our time to shopping. But I was at that time that I bought my Fujifilm Instax Mini Evo(quite hard to buy it in Mainland China). 
 
-Then we went to **Causeway Bay(铜锣湾)** to buy the albums(but didn't find them). 
+Later, we headed to **Causeway Bay(铜锣湾)** for albums, though unfortunately, our quest was in vain. 
 
 At night, we went to the **Avenue of Stars(星光大道)** and **Victoria Harbour(维多利亚港)** to see the night view. 
 
@@ -102,7 +102,7 @@ At night, we went to the **Avenue of Stars(星光大道)** and **Victoria Harbou
 
 ### Day4 
 
-Departure day! We had a quite delicious and favorable breakfast at **Master Congee(大师傅粥品)**. 
+Departure day! We enjoyed a delectable and satisfying breakfast at **Master Congee(大师傅粥品)**. 
 
 <img src="pics\congee.jpg" alt="Congee" width="60%" height="60%">
 
@@ -140,7 +140,7 @@ Mainly for modern arts. A very good place to relax and visit, it has the **sky g
 
 ### Hong Kong Palace Museum(香港故宫文化博物馆)
 
-Exhibition for old China. Quite common in China Mainland. 
+Exhibition for old China. Quite common in Mainland China. 
 
 ### Victoria Peak(太平山顶)
 
